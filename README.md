@@ -1,1 +1,3 @@
 # caohongye
+NOT A CODER 
+I CAN BE BETTER
